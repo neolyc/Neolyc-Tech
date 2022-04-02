@@ -1,2 +1,0 @@
-# Neolyc-Tech
-Neolyc Technologies
